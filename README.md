@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+I am Ike, Highly favored by God and my eyes are set on greater things.
